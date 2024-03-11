@@ -3,6 +3,45 @@
 Presented by PTO Council
 February 2018
 
+* [ORGANIZATION](#organization)
+   * [NAME](#name)
+   * [MISSION STATEMENT](#mission-statement)
+   * [MEMBERSHIP AND DUES](#membership-and-dues)
+   * [PTO CODE OF CONDUCT](#pto-code-of-conduct)
+* [LEADERSHIP STRUCTURE - PTO COUNCIL](#leadership-structure---pto-council)
+   * [PTO COUNCIL ROLE](#pto-council-role)
+   * [PTO COUNCIL MEMBERSHIP](#pto-council-membership)
+   * [PTO COUNCIL DUTIES](#pto-council-duties)
+   * [PTO COUNCIL APPOINTMENT](#pto-council-appointment)
+   * [PTO COUNCIL EXECUTIVE COMMITTEE](#pto-council-executive-committee)
+   * [PTO COUNCIL CHAIRPERSON DUTIES](#pto-council-chairperson-duties)
+   * [PTO COUNCIL COMMITTEES](#pto-council-committees)
+* [LEADERSHIP STRUCTURE:  BUILDING PTO BOARD](#leadership-structure--building-pto-board)
+   * [BUILDING PTO BOARD ROLE](#building-pto-board-role)
+   * [BUILDING PTO BOARD MEMBERSHIP](#building-pto-board-membership)
+   * [BUILDING PTO BOARD DUTIES](#building-pto-board-duties)
+   * [BUILDING PTO EXECUTIVE COMMITTEE APPOINTMENT](#building-pto-executive-committee-appointment)
+   * [BUILDING PTO EXECUTIVE COMMITTEES](#building-pto-executive-committees)
+   * [BUILDING PTO BOARD APPOINTMENT](#building-pto-board-appointment)
+   * [BOARDS](#boards)
+   * [BUILDING PTO COMMITTEES](#building-pto-committees)
+* [FINANCES](#finances)
+   * [FUNDRAISING](#fundraising)
+   * [BUDGETS](#budgets)
+   * [EXPENDITURES](#expenditures)
+   * [AUDITS/INTERNAL CONTROLS:](#auditsinternal-controls)
+* [PARLIAMENTARY PROCEDURE](#parliamentary-procedure)
+   * [MEETINGS](#meetings)
+   * [VOTING](#voting)
+   * [AFFILIATES:](#affiliates)
+   * [AMENDMENTS](#amendments)
+* [APPENDIX](#appendix)
+   * [APPENDIX A – KENSTON HIGH SCHOOL PTO BOARD](#appendix-a--kenston-high-school-pto-board)
+   * [APPENDIX B – KENSTON MIDDLE SCHOOL PTO BOARD](#appendix-b--kenston-middle-school-pto-board)
+   * [APPENDIX C – KENSTON INTERMEDIATE SCHOOL PTO BOARD](#appendix-c--kenston-intermediate-school-pto-board)
+   * [APPENDIX D – TIMMONS ELEMENTARY SCHOOL PTO BOARD](#appendix-d--timmons-elementary-school-pto-board)
+
+
 # ORGANIZATION
 
 ## NAME
